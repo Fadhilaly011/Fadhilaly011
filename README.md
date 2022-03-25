@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Fadhilaly011
+- 👀 I’m interested in website developer
+- 🌱 I’m currently learning front end
+- you can contact me on instagram : @fdhlaly, 
+- or
+- Email : Fadhilaly011@gmail.com
